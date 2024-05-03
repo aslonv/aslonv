@@ -6,4 +6,4 @@
 
 ### My background is in physics and mathematics.
 
-### I am interested in building new tools and solving important problems to advance humanity as well as expand scope and scale of human consciousness. 
+### I am interested in building new tools and solving important problems to advance humanity. 
